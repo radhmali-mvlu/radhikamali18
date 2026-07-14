@@ -10,7 +10,7 @@
 
 - 👨‍💻 All of my projects are available at [https://www.linkedin.com/in/radhika-mali-50a788357](https://www.linkedin.com/in/radhika-mali-50a788357)
 
-- 📫 How to reach me **radhikamali747@gmail.com**
+- 📫 How to reach me **radhikamali727@gmail.com**
 
 - 📄 Know about my experiences [https://www.canva.com/design/DAG9C5qXF7Q/GWFH038Jj3f6qGX8-YcAig/edit?utm_content=DAG9C5qXF7Q&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAG9C5qXF7Q/GWFH038Jj3f6qGX8-YcAig/edit?utm_content=DAG9C5qXF7Q&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
